@@ -1,0 +1,2 @@
+# cunda
+latihan dulu
